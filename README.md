@@ -21,3 +21,4 @@ Alle Guten Dinge sind wie rote Holzplatten.
 Schornsteine waren letzte Woche schöner als morgen, denn sie springen in die Pfütze.
 Was war, als sich die Maus in das Maul biss und dabei Salza tanzte? Der Eisbär verlor seinen Pelz.
 Tausend Sonnen brennen wie Chilli im Quark.
+But in the End, it doesǹt even matter...
